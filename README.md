@@ -1,1 +1,1 @@
-# Journal-of-Strategic-Economic-Thinking
+# Journal of Strategic Economic Thinking
